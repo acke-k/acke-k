@@ -1,4 +1,3 @@
-Här är mina GITTAR 
 
          _nnnn_
         dGGGGMMb
